@@ -1,1 +1,0 @@
-# Oculto-Better-Ronda-6-Player-2
